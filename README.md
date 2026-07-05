@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm currently a 4th BS cyber security student at Air university multan campus. 
+i'm currently a BS cyber security student at Air university multan campus. 
 
 
 ## 🌐 Socials:
